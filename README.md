@@ -1,0 +1,1 @@
+In a skillet, on high heat, add in the chorizo, break it down with a spoon, and cook for about 5 minutes or until browned and cooked. Then add in the beans, and a bit of water, cook until the beans are warm. Finally mash the chorizo and beans to a paste, add salt if needed. Set aside.
